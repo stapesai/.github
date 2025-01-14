@@ -2,7 +2,7 @@
 
 @mayank bhai likh do isse please 🤝
 
-comapany hi itni badi kardo ki sirf naam kaafi ho
+company hi itni badi kardo ki sirf naam kaafi ho
 
 accha @mayank, fir dc aao aur kaam kro
 <!--
